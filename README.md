@@ -2,7 +2,7 @@
 ## resumo do livro sobre pressão
 
 ## pressao é diferente de estresse
-Enquanto fazer uma tarefa que exige foco sobre condições mais complicadas traz pressão, o estresse vem de fazer tarefas que estão além da nossa capacidade. Em resumo, pressão ocorre quando já existe a habilidade necessária, porém, existe fatores que interferem na tarefa, como apresentar em público ou ter que fazer a tarefa em um ambiente em que é sempre interrompido. Estresse ocorre quando é exigido algo que provavelmente não é possível de ser realizado no momento, como ter que dirigir um carro sem nunca ter digido, ou dar uma aula de inglês sem saber inglês. 
+Enquanto fazer uma tarefa que exige foco sobre condições mais complicadas traz pressão, o estresse vem de fazer tarefas que estão além da nossa capacidade. Em resumo, pressão ocorre quando já se tem a habilidade necessária para a tarefa, porém, existe fatores que interferem na tarefa, como apresentar em público ou ter que fazer a tarefa em um ambiente em que é sempre interrompido. Estresse ocorre quando é exigido algo que provavelmente não é possível de ser realizado no momento, como ter que dirigir um carro sem nunca ter digido, ou dar uma aula de inglês sem saber inglês. 
 
 Estresse e pressão podem vir juntos por exemplo, quando é feita uma atividade dificil em pouco tempo. Porém, vale relembrar que as soluções são completamente opostas. Quando existe estresse, o recomendável é reduzir o escopo, ao invés de uma tarefa de ensinar inglês, focar em aprender o básico e ensinar o básico. 
 
