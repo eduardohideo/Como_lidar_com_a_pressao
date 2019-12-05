@@ -25,4 +25,36 @@ Nem sempre a pressão leva a errar de bobeira (em inglês chamado de "choke"). E
 
 ## soluções para pressão
 O autor propôe 24 soluções para reduzir o estresse
-- 
+- considerar o momento como desafio/oportunidade
+- considerar que a oportunidade é uma de muitas outras
+- reduzir a importancia do evento (nao é "a oportunidade da vida"/"mundial")
+- manter o foco no objetivo
+- antecipar o evento (esperar o inesperado)
+- reconhecer seu valor (autoconfiança)
+- relembrar seu melhor caso de sucesso
+- ser positivo
+- estar presente no momento (ignorar pensamentos do passado e futuro/mindfulness memes)
+- focar no que está no seu controle (ignorar o que está fora do seu controle)
+- ouvir alguma musica enquanto está fazendo a tarefa 
+- usar uma ancora (palavra/imagem que inspire sucesso)
+- experimente pressão (treinar a pressão continuamente)
+- esprema uma bola
+- escrever sobre a situação
+- ignorar a auto-consiência
+- meditacao
+- seja compulsivo e impulsivo (criar praticas e pre-rotinas)
+- desacelerar o tempo de resposta
+- respirar naturalmente
+- ir primeiro em situações que não exige experiência
+- compartilhar com os outros a pressão
+
+## contruindo a COTE ARMOR
+Nas soluções de pressão, ela foca apenas no momento da pressão, mas alguns habitos são necessários a longo prazo. 
+- confiança
+- receber feedbacks
+- postura
+- pequenas vitorias são importantes
+- visualizar vitorias
+- tomar responsabilidade pelos seus atos
+- buscar criticas e desafiar a acuracia dos seus pensamentos
+- otimismo
