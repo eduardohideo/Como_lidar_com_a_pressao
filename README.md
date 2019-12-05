@@ -18,4 +18,4 @@ No Mindset de rankeamento, a forma de pensar é ser o melhor em relação a todo
 No mindset de excelencia, o objetivo é fazer seu melhor e focar em melhorar continuamente, em trabalho em equipe o mindset de excelencia funciona melhor que o mindset de ranking já que o objetivo é que o time consiga vencer e isso exige que todos cooperem e façam o seu melhor. 
 
 ## terceira variável
-	Nem sempre a pressão leva a errar de bobeira (em inglês chamado de "choke"). Existem outros fatores que podem influenciar no desempenho e isso é importante em ser considerado. 
+Nem sempre a pressão leva a errar de bobeira (em inglês chamado de "choke"). Existem outros fatores que podem influenciar no desempenho e isso é importante em ser considerado. 
